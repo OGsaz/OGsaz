@@ -17,13 +17,7 @@
 
 - 📫 How to reach me **saksham.sharma5523@gmail.com**
 
-- ⚡ Fun fact **i don't know**
 
-- 👨‍💻 All of my projects are available at ****
-
-- 📝 I regularly write articles on ****
-
-- 📄 Know about my experiences **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
